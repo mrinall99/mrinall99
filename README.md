@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mrinall99
-- learning new things--
+- 
 - 
 
 <!---
